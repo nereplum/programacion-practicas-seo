@@ -1,0 +1,1 @@
+Esto es una práctica del curso de programación práctica de SEO
